@@ -1,5 +1,6 @@
 ---
 title: "Gaumukh Tapovan - Source of the ganges"
+image: gaumukh.jpg
 ---
 
 “Gaumukh Tapovan is a trek that I have done twice. Both much earlier, when I was younger. Indiahikes wasn’t yet born. On both occasions, the trek fascinated me for different reasons.
